@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/t3tbKCJ/K-gsl-y-Goku.jpg" alt="Kíñgsléy Goku" border="0"></a>
 
 ## <!-- Typing SVG -->
 <p align="center">
